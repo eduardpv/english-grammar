@@ -1,0 +1,57 @@
+# Lesson 15
+
+## Past Simple
+
+- I worked
+- I wanted
+- He lived there
+- I worked so much
+- I watched this movie
+- I watched this video
+- I watched this program `[проугрэм]` yesterday
+- We often talked about it
+- We talked about different things `[z]`
+- I wanted `[id]` to visit this place
+- I wanted to improve my English
+- I wanted to impove my grammar
+- I wanted to visit other countries and cities `(another - 1, other - many)`
+- I wanted to communicate `[комьюникейт]` with people from other countries
+- I wanted to choose the best hotel `(choice [чойс] - выбор, choose [чу:з] - выбирать)`
+- I wanted to find a good job
+- He wanted to find a good job
+- She `looked [t] at` him
+- He looked at her
+- I looked at her and She looked at me
+- I often used `[zd]` the Internet
+- I often used this service
+- I played different games
+- We played footbal together
+- I studied here
+- He studied there
+- She studied in another country
+- He studied abroad
+- I needed your help
+- I needed this money
+- I asked him a question
+- I asked her some `[некоторые]` questions 
+- He answered this question
+- I answered this letter
+- I liked this place
+- I really like this video `(very перед глаголом ставить нельзя)`
+- I really like this course
+- It accident `[происшествие - эксидент]` happened yesterday
+- It accident happened last night
+- I ordered my new computer online
+- I lived in this place
+- I lived in this area
+- I called her yesterday
+- She called my two hours ago
+- They arrived an hour ago
+- It happened three hours ago
+- He visited us `the day before yesterday` `(позавчера)`
+- I started `[статид]` this course
+- I started this course last week
+- I finished `[t]` my work
+- I finished my work thirty minutes ago
+- You really helped me
+- You helped me so much

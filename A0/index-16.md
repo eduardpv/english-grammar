@@ -1,0 +1,53 @@
+# Lesson 16
+
+## Past Simple
+
+- It seemed impossible in the beginning `(Это козалось невозможным в начале)`
+- It seemed so difficult especially `[особенно - испэшэли]` in the beginning
+- I closed the door
+- Someone opened the door
+- I closed the window
+- Someone opened the window
+- We turned back `(Мы повернули назад)`
+- They turned back
+- He loved her so much
+- He loved her and she loved him
+- He often laughed [t]
+- The often laughed
+- I stopped suddenly `[внезапно - саденли]`
+- We stopped in this place
+- I stopped near this shop
+- I stopped in this hotel
+- We `stayed at this hotel` `(остановиться в этом отеле)`
+- I remembered his name
+- I rememberd her name
+- We often talked on the phone `(разговаривать по телефону)`
+- They often talked on the phone
+- I sometimes lisened to music
+- I listened to that song
+- I waited for her
+- I waited for him
+- I waited for his friend
+- I waited for them
+- I waited for you `a little (немного)`
+- They waited for me a little
+- They agreed `in the end (в конце)`
+- I agreed in the end
+- I really wanted to understand it
+- I wanted to learn English
+- It really `interested me (интересовало меня)`
+- It interested me so much
+- This offer seemed very interesting
+- I needed more time
+- They moved to America
+- He moved to this city
+- She moved to England
+- We continued this course
+- We continued our `conversation (разговор)`
+- My friends always supported me
+- They loved each other
+- We supported each other
+- It changed my life
+- `Everything changed (все изменилось)`
+- Everything changed suddenly
+- It really helped me
