@@ -1,0 +1,44 @@
+# Lesson 3
+
+## Present Simple
+
+- He loves her
+- She plays there very often
+- He laughs
+- She watches these video lessons
+- He teaches English
+- He lives in London
+- She lives in the USA
+- He lives in this area
+- It helps me so much
+- He often travels
+- She travels every summer
+- It really hepls me
+- He drives a car
+- She works in a company
+- He works in a bank
+- He has a question
+- She has a problem
+- He has a dog / a cat
+- He has too little free time
+- She has so many questions
+- He needs you help
+- She needs your advice
+- It looks very beautiful
+- He looks very young
+- `It seems strange (Это кажется странным)`
+- It seems really strange
+- He does it `much better (намного лучше)`
+- She does it very well
+- He often says it
+- She often tells me about it
+- She sometimes says it
+- He sometimes tells me about it
+- She studies there
+- She likes this style / design
+- It costs so much money
+- It costs twenty dollars
+- It costs fifty euros
+- This bag costs thirty dollars
+- He likes this music / song / program / food
+- I need more money / time

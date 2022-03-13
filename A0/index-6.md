@@ -1,0 +1,43 @@
+# Lesson 6
+
+## Present Simple - Вопрос
+
+- Where do you want to go now?
+- Why do you think so?
+- How do you prefer to learn English?
+- When do you find time on it?
+- When do you find time all this?
+- What do you know about it?
+- What do you know about all this?
+- What does she know?
+- What does he want to do?
+- What do you want to do?
+- Where do you live?
+- Where do you study?
+- Where do you work?
+- When do you go to work?
+- Where does he work?
+- Where does she live?
+- How much does it cost?
+- How much does this ticket / ring / bracelet cost?
+- How much does this service cost?
+- How much do you pay for it?
+- How much do you pay for this service?
+- How much do you pay for your education?
+- When do you have free time?
+- Why do you work so much?
+- What does he want?
+- What time do you usually get up?
+- What time do you usually come to work?
+- What time do you usually come home?
+- What time do you usually go to bed?
+- Where do you want to work?
+- How often do you do it?
+- How often do you learn English?
+- How often do you go to the gym?
+- How often do you spend time with your family?
+- What books do you read?
+- What movies do you watch?
+- What movies do you prefer to watch?
+- What videos do you usually watch?
+- What games do you play?

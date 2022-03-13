@@ -1,0 +1,44 @@
+# Lesson 2
+
+## Present Simple
+
+- I often `go for a walk (ходить гулять) `
+- I want to go for a walk
+- I want to buy it
+- I want to buy this ticket
+- I want to buy `these [i:z]` tickets
+- I want to order it online
+- I want to order this food online
+- I want to order these tickets online
+- I want to visit England
+- I'd like to visit the USA
+- I'd like to visit this country / city
+- I'd like to visit these countries and cities
+- I'd like to drink tea
+- I'd like to try on this sweater
+- I'd like to try on these shoes / jeans / trousers
+- I want to learn English
+- I want to call you now
+- I want to go to that shop
+- I want to go to this restaurant
+- I want to go there with you
+- I want to talk about it now
+- I'd like to talk about it
+- I want to say one thing
+- I want to tell you one thing
+- I want to say one very important thing
+- I want to tell you about one problem
+- I need to do it
+- I need to do it now
+- I need to go home
+- I'd like to go home
+- I often go there
+- I need to go to work
+- I need to be there soon
+- I go to work
+- I want to go to the park
+- I'd like to go to the park with you
+- I'd like to go to America
+- I'd like to go to the USA next year
+- I'd like to go to that place
+- I'd like to go for a walk now

@@ -1,0 +1,44 @@
+# Lesson 4
+
+## Present Simple - Отрицание
+
+- I don't this food
+- I don't want to go there now
+- We don't see any changes
+- They don't want to say it
+- I see you don't want it
+- He doesn't want to talk about it
+- She doesn't work `so much (так много)`
+- It doesn't help me
+- It doesn't work
+- I see that it doesn't work
+- I see that it doesn't help me
+- She doesn't speak English
+- She doesn't understand it
+- I don't have much free time - I have too little free time
+- I don't travel so often
+- I don't have any brothers and sisters
+- I don't have any questions
+- I don't think that it really works
+- I don't see any changes
+- He doesn't want to say it
+- I don't want to talk about it
+- I don't have time
+- He doens't have money / this money
+- I know that it doesn't cost this money
+- I don't stop. I want to continue
+- I don't know the answer
+- He doesn't know the answer
+- It doesn't cost this money
+- He doesn't have a car
+- She doesn't want to do it
+- He doesn't like this idea / restaurant / song / shop
+- I don't think about it
+- `I don't think so (Я так не думаю)`
+- I don't agree with it
+- He doesn't think about it
+- He doesn't say it
+- She doesn't say this thing
+- She doesn't tell me about it
+- I don't ask him about it
+- He doesn't feel happy

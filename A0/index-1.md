@@ -1,0 +1,43 @@
+# Lesson 1
+
+## Present Simple
+
+- I work in/for a company
+- I agree
+- I understand
+- I know
+- We support you
+- You do it very well
+- They want more
+- I agree with you
+- I support you
+- We see this problem
+- They work in this place
+- I have a friend
+- I have a question
+- I have a ticket
+- I have an idea
+- I have an umbrella
+- I see a university
+- We see an airport
+- I see a supermarket
+- I see a hoter
+- I have a problem
+- I like English
+- I like this place
+- I like this food
+- I see a train
+- I see a bus
+- I have a result
+- I have a family
+- I have a dream
+- I have an aim
+- You have a talent
+- I work in this company
+- I see a message
+- They have a job
+- I really want it
+- I really like it
+- I really like this country
+- I really like this city
+- I really like this course
